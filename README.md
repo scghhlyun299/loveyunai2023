@@ -1,17 +1,44 @@
-收藏此网站，长期关系 云卿舞推荐【资源往下滑，从二开始是资源】
+你是我兄弟，2023年就祝福你赚钱愉快 把把手气好，现在正处于疫情后的经济修复阶段，赚钱才是好玩，长稳，愉悦的事情 我现在给你好的途径，玩法很多又好赢
+电脑端 https://suo.yt/K0CoI2p 注册邀请码填98349 胜率会提高 有大水
+手机端 https://suo.yt/U5uCATQ 注册邀请码填98349 胜率会提高 有大水
 
-罗聊一对一 https://suo.yt/obTVK8i
+![1](https://user-images.githubusercontent.com/117700658/213657491-99d78eb4-9781-4fab-9c3d-843344eca6c1.jpg)
 
-☚【一：介绍，往下翻二是资源】 2023年全新各种软件，收集了全网最火的看片直播软件，并且破解了，免费看，VIP功能多，收费便宜质量好，小说游戏视频音频图片等都有，资源多【资源往下翻，长期更新，收藏一下】 针对于新来的朋友不会下载看片软件，因为有的手机有自带的手机管家会对看片软件误报病毒之类的，这是误报，实则是没有病毒的放心，看片就是找快乐，我推荐的软件资源也多【前排质量很高，所以软件都是没有病毒，我自己在用的】
 
+收藏此网站，长期更新 云卿舞推荐【资源往下滑，不懂下载请看二号教程】
+
+罗聊一对一 https://suo.yt/obTVK8i 
+
+https://suo.yt/obTVK8i 就是软件的下载链接，长按链接的位置就可以复制链接，然后去浏览器打开下载软件（微信打不开的）下载教程看二号教程↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓
+
+![2](https://user-images.githubusercontent.com/117700658/213657547-eab7a1f1-4735-4d49-907b-720732dfed7e.jpg)
+
+
+①☚一号介绍✔ 2023年全新各种软件，收集了全网最火的看片直播软件，并且破解了，免费看，VIP功能多，收费便宜质量好，小说游戏视频音频图片等都有，资源多【资源往下翻，长期更新，收藏一下】 针对于新来的朋友不会下载看片软件，因为有的手机有自带的手机管家会对看片软件误报病毒之类的，这是误报，实则是没有病毒的放心，看片就是找快乐，我推荐的软件资源也多【前排质量很高，所以软件都是没有病毒，我自己在用的】
 【→关于打不开网站，提醒病。毒。色。情网站，那就是浏览器问题，换个浏览器就行了，因为这样不会被限制访问】
  安卓手机请安装 www.xbext.com 这个x浏览器，打开任何网站，包括国外都不会被访问限制 苹果用自带的浏览器（safari浏览器）
 
-☚【二：资源】
+②☚二号下载软件教程✔比如我用的是小米手机，属于安卓手机（除了苹果都叫安卓手机，华为也一样步骤）要下载【罗聊一对一 https://suo.yt/obTVK8i   】
+1.那首先要下载x浏览器，打开 www.xbext.com 这个网站，点官网下载或者
+点 https://www.xbext.com/download/xbrowser-release.apk 下载 
+2.打开x浏览器，然后粘粘已经复制好的软件下载地址，就是 罗聊一对一的
+ https://suo.yt/obTVK8i  然后就可以成功打开出网站，最后点击网站里的下载软件，安装使用进行了 【手机安装出现病毒提醒看下面的教程】
+
+【不管你是小米，魅族，oppo，一加，vivo等手机，安装软件前关掉WiFi和4g5g数据流量就行了，不会报毒】如果断网安装还出现安装不了请看教程 https://63254.3mdspj.xyz/#/andProcess
+
+3.苹果用自带的浏览器（safari浏览器），然后跟着教程走
+ 教程链接 https://suo.yt/5RC5AlC
+接着就可以无限打开下面的下载软件地址，无限体验VIP会员，看直播看视频，一对一在线视频跟微信视频一样爽
+
+![3](https://user-images.githubusercontent.com/117700658/213657614-43ce3ccf-5828-4d04-9aa2-2af74b9c8093.jpg)
+
+
+
+③☚三号下载软件合计，全部软件都在这里下载，地址长期更新
 
 
 老哥稳【最强约信息论坛】
-http://ybgr8372br.xyz:5993/?aff=57638
+https://suo.yt/XxDvJm2
 
 我自己每天都在用的裸聊！非常棒
 https://suo.yt/inTbNX2
@@ -23,13 +50,13 @@ https://suo.yt/obTVK8i
 下载 https://63254.3mdspj.xyz
 
 网红不雅被流出91短视频
-https://dsp.aff007.pro/aff-Ray8
+https://suo.yt/np1eJfP
 
 小妲己 小姐姐 小红帽直播
-https://suo.yt/JgMTAKs
+https://suo.yt/X524d94
 
 精彩爱情动作片
- https://suo.yt/zQRQHpV
+https://suo.yt/zQRQHpV
 
 全网最性感可人的网红美女大咖
 https://suo.yt/G7aqEDE
@@ -48,6 +75,9 @@ https://suo.yt/3KoJ39X
 
 每天弄零花钱
 https://suo.yt/PoqYoR2
+
+![4](https://user-images.githubusercontent.com/117700658/213657680-aa5acd95-1457-45de-aa60-326afd61635e.jpg)
+
 
 香蕉视频 会员激活码 VKZKK5 
 下载 https://1a2b3c.xmycjs.com
@@ -74,6 +104,9 @@ https://suo.yt/QJXqJY1
 
 玩恰一对一 
 https://suo.yt/SBzjgnf
+
+![5](https://user-images.githubusercontent.com/117700658/213657708-53b24931-afe0-4bb1-bb41-227e400985be.jpg)
+
 
 专为二次元定制的顶级污漫
 https://suo.yt/oyQVttR
@@ -128,6 +161,9 @@ https://suo.yt/MPDeyvu
 全网最火视频软件，快来下载
 会员激活码 ug19918294
 下载https://olululink.online
+
+![6](https://user-images.githubusercontent.com/117700658/213657738-309dc2c8-3b64-4acc-85cb-4623ba0e4f14.jpg)
+
 
 基圈后花园，看片上小蓝，最全G片，超帅猛攻，尽在【小蓝视频
  https://suo.yt/1c3Gshr
