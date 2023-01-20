@@ -1,46 +1,255 @@
-我想插进去你的嫩逼里 我的宝贝
-![photo_2022-05-17_20-25-38](https://user-images.githubusercontent.com/117700658/213615698-a3160515-51ba-40db-911e-4f1c69de5bc0.jpg)
+收藏此网站，长期关系 云卿舞推荐【资源往下滑，从二开始是资源】
 
-很好看的
+罗聊一对一 https://suo.yt/obTVK8i
 
+☚【一：介绍，往下翻二是资源】 2023年全新各种软件，收集了全网最火的看片直播软件，并且破解了，免费看，VIP功能多，收费便宜质量好，小说游戏视频音频图片等都有，资源多【资源往下翻，长期更新，收藏一下】 针对于新来的朋友不会下载看片软件，因为有的手机有自带的手机管家会对看片软件误报病毒之类的，这是误报，实则是没有病毒的放心，看片就是找快乐，我推荐的软件资源也多【前排质量很高，所以软件都是没有病毒，我自己在用的】
 
-https://user-images.githubusercontent.com/117700658/213625255-222464dc-35d0-4764-9c30-d7f9519fdbc0.mp4
+【→关于打不开网站，提醒病。毒。色。情网站，那就是浏览器问题，换个浏览器就行了，因为这样不会被限制访问】
+ 安卓手机请安装 www.xbext.com 这个x浏览器，打开任何网站，包括国外都不会被访问限制 苹果用自带的浏览器（safari浏览器）
 
-
-
-<<跟任何人聊得来>>
-沟通的艺术
-(一)	我们常常说行走社会时，经常被”以貌取人”，其实，更多的时候是被”以言取人”。如果你口齿笨拙或动辄出口伤人，和别人沟通起来就会很困难，就难以获得他人的认可，更不可能获取别人的欣赏、合作与帮助。
-[OneManager-php-master.zip](https://github.com/yunqw520/loveyunqingwu2023/files/10419448/OneManager-php-master.zip)
-
-(二)	所以说，会说话很重要。朱自清说过一句话:人生不外言动，除了动就只有言，所谓人情世故，一半儿是在说话里。”会说话是一门艺术，会说话上一种修养。我们每个人，每天都需要说很多话，可是真正“会说话”的人又有几个呢？
-[迅雷加速.txt](https://github.com/yunqw520/loveyunqingwu2023/files/10419450/default.txt)
-
-(三)	说话是什么？在林语堂那里，它是门艺术；在卡耐基的成功学里，它是工具；在郭德纲的相声里，它成了民间曲艺；到了主持人蔡康永的《说话之道》里，它成了一项“最划算”的事情。这些例子，说明说话不是一件简单的事。虽然每个人从牙牙学语到步入社会，不知已经说过多少话，但是有些人，说了一辈子的话，没有说过几句关键的话，就是没有权重，可以起到改变一些事物的情况的话语；有些人就凭几句话，因此而改变自己的人生。
-![2](https://user-images.githubusercontent.com/107339372/212522979-aac85921-4947-4f0e-9aa4-0f60b3c02e9f.jpg)
-
-(四)	如果有人问你：“你会和别人聊天吗？”你一定会觉得很可笑。而实际生活中，确实很多人都可以被归位“不会说话”。他们不懂得在什么时候、什么场合，什么话该说，而什么话不该说
-(五)	一个人才不一定会说话，但一个会说话的人一定是个人才。那些聊天高手，见什么人说什么话，到什么山唱什么歌，几句话就能抓住对方的心，让对方愿意听乐意说，与人交流愉快而顺畅。人们在心情愉悦、对来人充满好感的情况下，更愿意给对方提供更多的方便，给予更多的帮助。
-![逼逼介绍](https://user-images.githubusercontent.com/107339372/212522984-e39dd18a-6cb2-4401-85aa-7a66da28e5cb.jpg)
-
-(六)	与上司聊得来，能得到更多的赏识；与同事聊得来，能得到额外的支持；与客户、合作者聊得来，是项目成功的前奏；与身边的朋友聊得来，能加深彼此的友谊；与家人爱人聊得来，能营造甜蜜港湾。可以这样说，无论是交朋友还是谈事情，双方是否聊得开心、聊得透彻，是影响最终结果的重要因素之一。
-![IMG_0287](https://user-images.githubusercontent.com/107339372/212522987-6111dd3f-0968-4b04-9b49-b8105c450e2a.JPG)
-
-(七)	看看身边那么多的成功者和社会精英，哪一个不是说话的高手、沟通的奇才？可以这样说，和任何人都聊得来，会让你成为一个受欢迎的人，会让你赢得他人更多的尊重，会让你拥有良好的人际关系，甚至一个人的成功，至少有一半是靠“会说话”创造的！
-![IMG_20220515_112637_186](https://user-images.githubusercontent.com/107339372/212522989-300b2a3b-f2da-44cf-a37d-3ff83a022092.jpg)
-
-(八)	在这个充满竞争的时代，人人都会努力表现自己来争取机会。面试时，需要说话表现自己的优势；开会时，需要说话表达自己的见解；人际交往中，需要说话来为自己赢得人脉；商业谈判中，需要说话为自己赢得成功……不管是哪一方面，都离不开说话。今天的时代，各个方面都离不开信息交流，人们对一个人的了解最主要的就是来自被了解者的语言，有高超的当众讲话水平就能体现一个人的知识水平，阅历经验等综合素质。一个沉默寡言的人，别人上是不会在意的，也无法了解的。
-![photo_2022-05-15_14-58-38](https://user-images.githubusercontent.com/107339372/212522991-4eb87779-889d-4201-99d7-81078dcf2d10.jpg)
-
-(九)	一个人事业的成功与否离不开说话。会说话的可以获得别人的同情、帮助、合作，或受到他人的赞赏。在现代社会，会说话才能够让我们在任何场所、任何时候都备受瞩目，才能够让我们时常处于优势地位，才能够让我们在调整周围人际关系和经济关系的过程中更得心应手。如今，会说话既是一种技艺，同时更是打天下的本领。
+☚【二：资源】
 
 
-https://user-images.githubusercontent.com/107339372/212522994-c5dc8636-492e-46d2-af4e-8994cee6b8b2.mov
+老哥稳【最强约信息论坛】
+http://ybgr8372br.xyz:5993/?aff=57638
+
+我自己每天都在用的裸聊！非常棒
+https://suo.yt/inTbNX2
+
+一对一裸聊
+https://suo.yt/obTVK8i
+
+黄瓜视频 会员激活码WYVM6H
+下载 https://63254.3mdspj.xyz
+
+网红不雅被流出91短视频
+https://dsp.aff007.pro/aff-Ray8
+
+小妲己 小姐姐 小红帽直播
+https://suo.yt/JgMTAKs
+
+精彩爱情动作片
+ https://suo.yt/zQRQHpV
+
+全网最性感可人的网红美女大咖
+https://suo.yt/G7aqEDE
+
+撸猫
+https://d.wuweiren.net/m.html
+会员激活码ug19918294
+
+深夜看片
+ https://suo.yt/woA6DUJ
+会员激活码NBDJVE
+
+pear雪梨社区
+https://suo.yt/3KoJ39X
+会员激活码H9W8
+
+每天弄零花钱
+https://suo.yt/PoqYoR2
+
+香蕉视频 会员激活码 VKZKK5 
+下载 https://1a2b3c.xmycjs.com
+
+寻欢阁 约泡
+https://suo.yt/EUIl1n6
+
+看视频
+https://suo.yt/z6fiTcn
+
+直播盒子
+https://suo.yt/5P5Rqud
+
+网红不雅被流出？ 网红资源无处寻？经典AV哪里找？一切尽在91AV请复制链接在浏览器
+https://suo.yt/4RHhDNI
 
 
-(十)	不难发现，那些能在众人面前滔滔不绝地讲话的人，私下里也是一个充满自信的人。曾经有人做过一个调查，想搞清楚人们进行口才训练的原因和内心愿望是什么，调查的结果惊人的一致——大多数人的内心愿望于原因基本是一样的，他们是这样回答的：“当人们要我站起来说话时，我觉得很不自在，很害怕，使我不能清晰地思考,不能集中精力，不知道自己要说的是什么。所以我的最大愿望就是可以在公众面前自信、泰然地发表自己的观点，且逻辑清晰，内涵丰富，让人折服。”
+海量无码大片免费观看。复制链接到浏览器
+↓注册邀请码SHNCX激活会员↓ 下载
+https://kkk6038.com
 
+一对一最强
+https://suo.yt/QJXqJY1
 
-https://user-images.githubusercontent.com/107339372/212522995-4826ce7e-dcbf-4857-98b2-a538a2813df7.mov
+玩恰一对一 
+https://suo.yt/SBzjgnf
 
+专为二次元定制的顶级污漫
+https://suo.yt/oyQVttR
 
+看百万片源，约同城少妇，玩外围嫩模
+ https://suo.yt/rg1h6QN
+
+色中色
+https://suo.yt/tmyUduS
+
+p站视频
+https://suo.yt/tNdhr1R
+
+颜色成人美团，看色片，查楼凤，边看边约
+https://suo.yt/BMMDZJ2
+
+麻豆传媒
+https://suo.yt/vlFEW0A
+
+网红不雅一切尽在91AV啊
+https://suo.yt/tz85G4C
+
+撸先生，地表最强撸管神器
+https://suo.yt/f9MbkXx
+
+哔哩哔哩成人版
+https://suo.yt/FvcPz8R
+
+幼儿园小朋友
+https://suo.yt/ErI0L7J
+                                                                                                            猫咪段子邀请码 jkf3c
+下载 https://www.vx5er6p2.pw           
+
+五月天
+ https://suo.yt/6WVZ77M
+
+瑶池
+https://suo.yt/LNQ83q2
+
+找楼凤外围就上51品茶
+https://suo.yt/9pzXMhj
+
+春水
+https://suo.yt/cgjytS1
+
+网红不雅被流出？精品资源无处寻？一切尽在91porn啊
+https://suo.yt/MPDeyvu
+
+一起看成人剧情视频
+  https://suo.yt/eQEftRu   
+
+全网最火视频软件，快来下载
+会员激活码 ug19918294
+下载https://olululink.online
+
+基圈后花园，看片上小蓝，最全G片，超帅猛攻，尽在【小蓝视频
+ https://suo.yt/1c3Gshr
+
+蜜桃传媒
+https://suo.yt/JlEnKFA
+
+磕炮聊天
+https://suo.yt/w5zle5H
+
+小小影视APP要你好看，永久免费在线观看，支持投屏、离线观影，网罗海内外影视资源
+https://suo.yt/c4aXnYe
+
+黄瓜滴滴约车
+https://suo.yt/k3JW1yE
+  
+看片                                
+https://suo.yt/vVK0Ebm
+
+黑料社
+https://suo.yt/DJIQhzw
+
+柚子App，撩妹约炮
+https://suo.yt/lJ95hmW
+
+先有菠萝后有天，看看片赛神仙
+https://suo.yt/PSI22HZ
+
+想看明星网红不雅视频吗
+会员激活码3rE
+https://suo.yt/LRwN6HB
+
+网传不雅视频
+ https://suo.yt/MIb8e5n
+
+直播
+https://suo.yt/FlnHNAx
+
+9uu看视频
+https://suo.yt/dqyVx1u
+
+69萝莉
+https://suo.yt/Lz4I9UR
+
+【全部视频免费看】
+https://suo.yt/kUSbn7z
+会员邀请码v1bb3453
+
+抖音同城免费约炮/国产原创H视频,色图/裸聊/私人定制就从[暧昧]开始
+https://suo.yt/vJtvqA1
+
+深夜看片神器梅花视频
+ https://suo.yt/323Lci3
+
+这是狼友圈链接 https://suo.yt/dzkTdjt   
+会员邀请码 k5u1Ce
+
+糖心vlog
+https://suo.yt/E1CbMLr
+
+91制片厂 100万珍藏级国产片免费看
+https://suo.yt/lZ94uo5
+
+看AV,看动漫,看直播,玩换妻游戏
+https://suo.yt/QpiYG12
+
+套路视频
+https://suo.yt/MHS2Vbq
+
+极乐世界
+https://suo.yt/oDQyRKU
+
+漫画
+https://suo.yt/kVTyZJe
+
+老哥们都喜欢的萝莉时光，带你回到青涩时代。91萝莉
+ https://suo.yt/9yWwfGC
+
+小黄片
+https://suo.yt/MIGrL33
+
+波
+https://suo.yt/0Q2fHCM
+
+成人視頻APP好色先生視頻
+会员激活码 0HMEB5  
+https://suo.yt/zrckwUU
+
+看片
+https://suo.yt/fxxjHH4
+
+蜜桃视频
+https://suo.yt/147Q3jy
+
+草榴短视频
+https://suo.yt/wn57aH4
+
+91滴滴-下载地址
+https://suo.yt/SR7yiPk
+
+明星网红不雅视频    会员激活码3rE
+下载 https://suo.yt/LRwN6HB
+
+网传不雅视频
+ https://suo.yt/MIb8e5n
+
+成人世界，不止成人，下载鱿鱼
+https://suo.yt/aGlMdZP
+
+看片
+https://suo.yt/S7eZb2i
+
+深夜看片神器色界视频
+ https://suo.yt/cIJfLRf
+会员激活码 RDP4RP
+
+看片
+https://suo.yt/N8tVm0l
+
+老师好
+https://suo.yt/fVaYCE2
+
+SM、少女、偷窥、泄漏门
+会员激活码caP5
+https://suo.yt/IdzVP2b
